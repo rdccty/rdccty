@@ -1,1 +1,2 @@
-rdc lindo eba :)
+rdc é lindo eba :)
+acabo
